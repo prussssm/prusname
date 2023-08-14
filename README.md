@@ -1,1 +1,1 @@
-# prusname
+# prusskaya
